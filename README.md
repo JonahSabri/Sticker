@@ -1,0 +1,2 @@
+# Sticker
+Create Funy Stickers
